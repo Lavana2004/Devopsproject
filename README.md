@@ -1,4 +1,6 @@
-![WhatsApp Image 2025-03-18 at 10 17 42_b5af7e61](https://github.com/user-attachments/assets/96eec09e-c1da-440a-9711-f5a473ffd6f0)
-![WhatsApp Image 2025-03-18 at 10 17 42_d9ae5632](https://github.com/user-attachments/assets/f9a3a388-60cb-40e0-b27e-c49b56d22be6)
-![WhatsApp Image 2025-03-18 at 10 17 43_90c3fed2](https://github.com/user-attachments/assets/ba619998-fc3f-4f1f-9c80-a4f832a3e793)
-![WhatsApp Image 2025-03-18 at 10 17 43_d34e79cd](https://github.com/user-attachments/assets/115ce87f-7124-4cd7-bce5-8b83a327244c)
+Task -1
+
+
+![image](https://github.com/user-attachments/assets/37558afb-e43e-46a3-af19-d1dd1513d3a5)
+![image](https://github.com/user-attachments/assets/ebc500ba-0ee1-4245-9947-5317471c28dd)
+![image](https://github.com/user-attachments/assets/07d2dbf5-5388-4367-a9cb-43b6edc668ae)
